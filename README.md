@@ -1,1 +1,1 @@
-# prviczadnjicinnikolivec
+# Prvič, zadnjič in nikoli več
